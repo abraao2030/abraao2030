@@ -10,8 +10,11 @@
 **_coloca em negrito e italico_**
 --->
 - 📲 **_WhatssApp_**  (https://wa.me/5535997198034)
+
 - 🖥️ **_Telegram_**  (https://t.me/AbraaoOliveir)
+
 - 🎬  **_Stagram_**  (https://www.instagram.com/abraao_oliveira.15/)
+
 - 📳 **_E-mail_**  (https://mailto:abraao2030oliveira@gmail.com)
 
 
